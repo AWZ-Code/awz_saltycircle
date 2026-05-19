@@ -1,1 +1,1 @@
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/bea47b07-6d3c-4c3f-919e-9c7c24876c32" />
+<img width="1672" height="941" alt="SALTYCIRCLE" src="https://github.com/user-attachments/assets/26138c6d-cd04-4109-8e46-7d2e16c8067e" />
